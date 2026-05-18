@@ -1,1 +1,0 @@
-# Jejak-Karya-Kelas-1-SD-Negeri-3-Tumang
